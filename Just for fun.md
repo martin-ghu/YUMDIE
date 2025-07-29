@@ -1,4 +1,4 @@
-Just for fun!
+Just for fun:
 
 YUMDIE HUMDIE is still small
 
