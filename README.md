@@ -2,7 +2,7 @@
 
 **Y**ou - the **U**ser - are in charge to **M**anage and **D**evelop your **I**ntelligent **E**nvironment!
 
-Witness the slow birth of a new paradigm in digital communication... 
+Witness the slow birth of a new & experimental paradigm in digital communication... 
 
 Phase 1 Learn from the past 
 
@@ -29,3 +29,7 @@ Have a nice day...
 Martin
 
 🍀​
+
+20250729135135 T YUMDIE!
+
+20250729135144
