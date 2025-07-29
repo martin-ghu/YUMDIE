@@ -1,5 +1,3 @@
-Just for fun:
-
 YUMDIE HUMDIE is still small
 
 sits on the floor so he can’t fall
