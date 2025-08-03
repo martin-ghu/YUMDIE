@@ -1,6 +1,6 @@
 # YUMDIE!
 
-**Y**ou - the **U**ser - are in charge to **M**anage and **D**evelop your **I**ntelligent **E**nvironment!
+**Y**ou **U**se **M**anage and **D**evelop your own **I**ntelligent **E**nvironment!
 
 Witness the slow birth of a new & experimental paradigm in digital communication... 
 
